@@ -1,2 +1,0 @@
-# BGO
-Beauty Goes On
